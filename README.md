@@ -18,5 +18,10 @@ just put the information in the Entry and click in 'GO'.
 <br>
 then you will get text file >>comments.txt>>> in this text file you will get your comments 
 <br>
+to contact with me on facebook >> https://www.facebook.com/profile.php?id=100019740513920
+<br>
+My email:ismaelalsafadi@protonmail.com
+Gmail:osamaopsmrx@gmail.com
+<br>
 thank you for using my tool ^__^ 
 
